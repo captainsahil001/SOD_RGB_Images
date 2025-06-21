@@ -1,1 +1,0 @@
-# SOD_RGB_Images
